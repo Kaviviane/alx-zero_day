@@ -1,0 +1,1 @@
+Alx program will be done in 12 months with 70 hours per week.
